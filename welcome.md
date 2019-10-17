@@ -1,3 +1,3 @@
 Hello DM25! - Mykenzie Rogers
 Sup nerds - Eric Sellors
-Who are you people - David Newman
+Im just kidding I love yall - Eric Sellors
